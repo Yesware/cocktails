@@ -19,7 +19,3 @@ Crack the PBR. Drain a few ounces (down your esophagus, not the sink - clown).
 Using a can opener, cut the top off the tall boy. 10 points to Gryffindor if you do it with your bare hands.
 
 Drop in your shot glass & chug. And just like if you were in Allston, watch your mouth and don't get sliced.
-
-
-
-
