@@ -23,9 +23,3 @@ Drop in your shot glass & chug. And just like if you were in Allston, watch your
 
 
 
-
-
-
-
-
-
